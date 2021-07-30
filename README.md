@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YouCook21
-- 👀 I’m interested in everything is related to Biology and a lot other stuffs
+- 👀 I’m interested in everything that is related to Biology and a lot other stuffs
 - 🌱 I’m currently learning Bioinformatics and OMIC disciplines
 - 💞️ I’m looking to collaborate on ... actually I do not know but I am a curious person. Try to contact me for any projects!
 - 📫 How to reach me claudio.cucini@student.unisi.it
